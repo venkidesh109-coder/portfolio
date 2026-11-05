@@ -3,4 +3,4 @@
 
 ![image](excel.png)
 ## let's connect
-[linkedin](linkedin.com/in/venkideshkv)
+[linkedin](https://www.linkedin.com/in/venkideshkv/)
